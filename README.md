@@ -1,0 +1,2 @@
+# Simposio_Internacional_Estadistica_2025
+Material del Simposio
